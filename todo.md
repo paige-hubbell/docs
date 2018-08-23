@@ -1,0 +1,2 @@
+- dump the thoughts from yesterday
+- 
